@@ -2,3 +2,4 @@
 
 ## Remarks
 * DSC has really helped me know about open source development
+* DSC has introduced me to open source and has taught me how I can make the world a better place through coding
