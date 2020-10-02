@@ -2,3 +2,6 @@
 
 ## Remarks
 * DSC has really helped me know about open source development
+
+Its a good community Hope to learn more on my domaine due to your help. 
+Do more open source exercise more hackathons more project more coding session, competition too it will help most of us
