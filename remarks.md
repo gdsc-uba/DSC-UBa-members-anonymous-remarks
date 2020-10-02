@@ -2,3 +2,5 @@
 
 ## Remarks
 * DSC has really helped me know about open source development
+* Great initiative to create mini projects and aid with open source contributions.
+
