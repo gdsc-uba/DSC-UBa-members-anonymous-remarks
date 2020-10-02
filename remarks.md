@@ -2,3 +2,6 @@
 
 ## Remarks
 * DSC has really helped me know about open source development
+
+## Remarks
+* It's my first time contributing to open-source development, thanks to DSC. 
