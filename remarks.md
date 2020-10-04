@@ -2,6 +2,9 @@
 
 
 ## Remarks
+
+* DSC has really helped me know about open source development
+* Well its my first year and first time here and its quite intriguing! The lead this year is pretty and enthralling! Kudos!!
 * It's my first time contributing to open-source development, thanks to DSC. 
 * Great initiative to create mini projects and aid with open source contributions.
 * I'm very happy with the DSC movement as it has helped me with more opportunities in the tech field it has helped me to widen my scope and I'm really glad with the patience and help from DSC UBa leaders.
