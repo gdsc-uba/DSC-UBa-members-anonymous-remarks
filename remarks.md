@@ -2,3 +2,4 @@
 
 ## Remarks
 * DSC has really helped me know about open source development
+* I intend to become an expert in tech with the help of DSC UBa and i appreciate having learnt something about open source with their help
