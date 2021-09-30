@@ -14,3 +14,4 @@
 * This year's DSC program seems to be very rich as two events have been organized already and they were awesome. I have a good feeling about this.
 * DSC has open me to new things and open source
 * DSC is giving me another reasoning of things and gret opportunities
+* I'm doing, all this because of the GDSC, a great place to be
