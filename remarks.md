@@ -1,7 +1,7 @@
 ### Say anything about DSC UBa. It can be suggetions on how to make it better, or what you intend gaining, or constructive criticisms, or what you have learnt. Update this file by editing it with your own remark. Don't forget to create a pull request after commiting changes.
 
 
-## Remarks
+`## Remarks
 
 * DSC has really helped me know about open source developmentr
 * I intend to become an expert in tech with the help of DSC UBa and i appreciate having learnt something about open source with their help
@@ -25,4 +25,13 @@ better than I ever was.
 * Good to be among! 
 *DSC UBa post a good learning environment.its really fun to meet up with people that have this urge to learn.
 it will be much more fun if there is more competition to encourage learning.
+
 * This chapter will rock Bambili and Bamenda
+
+* DSC UBa is the best developers community I have been in and I love it.
+
+* DSC is the best 👍😁😃
+
+* DSC UBa is a cool environment for all tech lovers and I appreciate all those who are making efforts in putting DSc UBa on the map.
+
+
