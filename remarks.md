@@ -25,13 +25,15 @@ better than I ever was.
 * Good to be among! 
 *DSC UBa post a good learning environment.its really fun to meet up with people that have this urge to learn.
 it will be much more fun if there is more competition to encourage learning.
-
 * This chapter will rock Bambili and Bamenda
-
 * DSC UBa is the best developers community I have been in and I love it.
-
 * DSC is the best 👍😁😃
-
 * DSC UBa is a cool environment for all tech lovers and I appreciate all those who are making efforts in putting DSc UBa on the map.
-
+* DSC UBa. my brain is blank right now. it's cool tho
 * What next, feel confident about this DSC stuff
+* DSC has taught me about open source and exposed me to many tech related opportunities
+* DSC is a game changer
+* I like our current DSC Lead and beleive he will do great things this year
+* DSC UBa is the best and I'm happy to belong here.
+* I think we have great potentials too and I'm proud of the work out former DSC Lead put and hope the spirit continues.
+* Learning with DSC Bambili is really fun.
