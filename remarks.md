@@ -15,3 +15,6 @@
 * DSC has open me to new things and open source
 * DSC is giving me another reasoning of things and gret opportunities
 * Love the oportunities from DSC Bamenda 
+* I have never been part of a cooler community. Where input is great, and other people's achievement push me to become
+better than I ever was. 
+
