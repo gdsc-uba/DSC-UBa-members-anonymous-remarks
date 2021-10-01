@@ -16,3 +16,4 @@
 * DSC is giving me another reasoning of things and gret opportunities
 * I have never been part of a cooler community. Where input is great, and other people's achievement push me to become
 better than I ever was. 
+* DSC makes learning even more fun.
