@@ -26,3 +26,4 @@ better than I ever was.
 *DSC UBa post a good learning environment.its really fun to meet up with people that have this urge to learn.
 it will be much more fun if there is more competition to encourage learning.
 * DSC UBa is the best developers community I have been in and I love it.
+* DSC is the best 👍😁😃
