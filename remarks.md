@@ -33,5 +33,6 @@ it will be much more fun if there is more competition to encourage learning.
 * DSC is the best 👍😁😃
 
 * DSC UBa is a cool environment for all tech lovers and I appreciate all those who are making efforts in putting DSc UBa on the map.
+* DSC UBa will go places... first time in this chapter fully and i am loving how it is moving already. Hacktoberfest oyeehhhh!!!
 
 
