@@ -37,3 +37,7 @@ it will be much more fun if there is more competition to encourage learning.
 
 * DSC is a game changer
 
+* I like our current DSC Lead and beleive he will do great things this year
+* DSC UBa is the best and I'm happy to belong here.
+* I think we have great potentials too and I'm proud of the work out former DSC Lead put and hope the spirit continues.
+* Learning with DSC Bambili is really fun.
