@@ -25,4 +25,4 @@ better than I ever was.
 * Good to be among! 
 *DSC UBa post a good learning environment.its really fun to meet up with people that have this urge to learn.
 it will be much more fun if there is more competition to encourage learning.
-
+* This chapter will rock Bambili and Bamenda
