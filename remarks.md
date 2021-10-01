@@ -29,6 +29,7 @@ it will be much more fun if there is more competition to encourage learning.
 * DSC UBa is the best developers community I have been in and I love it.
 * DSC is the best 👍😁😃
 * DSC UBa is a cool environment for all tech lovers and I appreciate all those who are making efforts in putting DSc UBa on the map.
+* DSC UBa will go places... first time in this chapter fully and i am loving how it is moving already. Hacktoberfest oyeehhhh!!!
 * DSC UBa. my brain is blank right now. it's cool tho
 * What next, feel confident about this DSC stuff
 * DSC has taught me about open source and exposed me to many tech related opportunities
