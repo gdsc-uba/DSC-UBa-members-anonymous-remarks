@@ -13,5 +13,16 @@
 * DSC has introduced me to open source and has taught me how I can make the world a better place through coding
 * This year's DSC program seems to be very rich as two events have been organized already and they were awesome. I have a good feeling about this.
 * DSC has open me to new things and open source
-* DSC is giving me another reasoning of things and gret opportunities
-* Learning is best done with action. I think DSC is giving me the opportunity to learn by practicing. I really like that and I hope you keep up.
+* DSC is giving me another reasoning of things and gret opportunities. 
+* Learning is best done with action. I think DSC is giving me the opportunity to learn by practicing. I really like that and I hope you keep up. 
+* Love the oportunities from DSC Bamenda 
+* I have never been part of a cooler community. Where input is great, and other people's achievement push me to become
+better than I ever was. 
+
+* DSC makes learning even more fun.
+
+*DSC UBa post a good learning environment.its really fun to meet up with people that have this urge to learn.
+it will be much more fun if there is more competition to encourage learning.
+
+
+ 
