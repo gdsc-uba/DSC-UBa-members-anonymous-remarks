@@ -20,4 +20,7 @@ better than I ever was.
 
 * DSC makes learning even more fun.
 
+*DSC UBa post a good learning environment.its really fun to meet up with people that have this urge to learn.
+it will be much more fun if there is more competition to encourage learning.
+
 
