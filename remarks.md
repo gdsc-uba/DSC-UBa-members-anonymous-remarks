@@ -12,7 +12,9 @@
 * I hope for more team spirit and for DSC UBa to scale to higher heights in all positive aspects 
 * DSC has introduced me to open source and has taught me how I can make the world a better place through coding
 * This year's DSC program seems to be very rich as two events have been organized already and they were awesome. I have a good feeling about this.
-* DSC has open me to new things and open source
+* DSC has open me to new things and open source. 
+* DSC is giving me another reasoning of things and gret opportunities
+* Great works are beeing done by the DSC team in making tech available for everyone, more grace to the team. 
 * DSC is giving me another reasoning of things and gret opportunities. 
 * Learning is best done with action. I think DSC is giving me the opportunity to learn by practicing. I really like that and I hope you keep up. 
 * Love the oportunities from DSC Bamenda 
