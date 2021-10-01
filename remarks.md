@@ -20,4 +20,4 @@ better than I ever was.
 
 * DSC makes learning even more fun.
 
-
+* Good to be among!
