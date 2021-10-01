@@ -20,12 +20,9 @@
 * Learning is best done with action. I think DSC is giving me the opportunity to learn by practicing. I really like that and I hope you keep up. 
 * Love the oportunities from DSC Bamenda 
 * I have never been part of a cooler community. Where input is great, and other people's achievement push me to become
-better than I ever was. 
-
-* DSC makes learning even more fun.
-
+better than I ever was.  
+* DSC makes learning even more fun. 
+* Good to be among! 
 *DSC UBa post a good learning environment.its really fun to meet up with people that have this urge to learn.
 it will be much more fun if there is more competition to encourage learning.
 
-
- 
