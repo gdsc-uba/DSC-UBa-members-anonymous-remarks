@@ -38,3 +38,4 @@ it will be much more fun if there is more competition to encourage learning.
 * DSC UBa is the best and I'm happy to belong here.
 * I think we have great potentials too and I'm proud of the work out former DSC Lead put and hope the spirit continues.
 * Learning with DSC Bambili is really fun.
+* I feel more at home, more confident and more supported than i ever have working with DSC UBa
