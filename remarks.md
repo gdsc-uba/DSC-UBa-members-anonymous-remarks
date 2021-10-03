@@ -40,3 +40,4 @@ it will be much more fun if there is more competition to encourage learning.
 * Learning with DSC Bambili is really fun.
 * I feel more at home, more confident and more supported than i ever have working with DSC UBa
 * DSC Uba has really helpd me to develop valuable skills, learn new technologies and build something helpful to the community.
+* I have really loved the energy DSC UBa can give out. One will not even need to actually be inside but only with about what he'll hear about them will be sufficient enough to get motivated and down to work. Thanks to the GDSC UBa team.
