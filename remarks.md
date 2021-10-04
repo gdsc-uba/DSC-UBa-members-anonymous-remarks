@@ -31,6 +31,7 @@ it will be much more fun if there is more competition to encourage learning.
 * DSC UBa is a cool environment for all tech lovers and I appreciate all those who are making efforts in putting DSc UBa on the map.
 * DSC UBa will go places... first time in this chapter fully and i am loving how it is moving already. Hacktoberfest oyeehhhh!!!
 * DSC UBa. my brain is blank right now. it's cool tho
+* DSC UBa is awesome and I can't wait to see all the amazing things it is still going to accomplish. Hoping for a more inclusive community where techies from every school or faculty can feel comfortable expessing themselves
 * What next, feel confident about this DSC stuff
 * DSC has taught me about open source and exposed me to many tech related opportunities
 * DSC is a game changer
