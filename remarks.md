@@ -43,4 +43,6 @@ it will be much more fun if there is more competition to encourage learning.
 * DSC Uba has really helpd me to develop valuable skills, learn new technologies and build something helpful to the community.
 * I have really loved the energy DSC UBa can give out. One will not even need to actually be inside but only with about what he'll hear about them will be sufficient enough to get motivated and down to work. Thanks to the GDSC UBa team.
 * I never we had great Techies till I joint UBa DSC, you all doing great!
-* DSC has been a good initiative ever since I came accross it, I  appreciate the the leads and encourage them to continue the great work. ride on DSC :) 
+* DSC has been a good initiative ever since I came accross it, I  appreciate the the leads and encourage them to continue the great work. ride on DSC :)
+* This is the first time I am contributing to open source and thats thanks to DSC Uba
+
